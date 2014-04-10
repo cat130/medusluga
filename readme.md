@@ -1,1 +1,1 @@
-сайт http:\\medusluga.by
+Site http:\\medusluga.by
